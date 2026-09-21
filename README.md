@@ -1,0 +1,2 @@
+# hsk3kosakata6-10
+LCN HSK3 KOSAKATA
